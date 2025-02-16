@@ -8,6 +8,10 @@ I also bring valuable customer service experience from my time as a security off
 
 I am eager to bring this multifaceted skill set into the tech industry, where I can leverage my background in education, problem-solving, and cybersecurity to innovate and make a meaningful impact. My goal is to contribute effectively by blending my technical expertise with my passion for technology and continuous learning.
 
+My name is John Fregeau, and I am excited to transition into the tech industry, leveraging my diverse experiences to contribute effectively. I have a rich background as an ESL teacher, both overseas and online, where I honed my communication skills while teaching students from all around the world through various platforms. My experience grading algebra tests for Pearson high school students reflects my solid foundation in math and education. Additionally, working as a behavioral aide for students with autism has equipped me with patience and the ability to work with diverse individuals, which is vital in any tech role. I also bring customer service experience from my time as a security officer, where I interacted with customers at different levels.
+
+My academic journey, with an A.S. in Math and Science and a B.S. in Biology, sets a strong scientific base for my current pursuit of an M.S. in Cybersecurity and Information Assurance. Moreover, I am completing my CompTIA A+ from completing a 6 Month rigorous program with Climb Hire, alongside earning certificates in IT Specialist, Digital Marketing, Ethical Hacking, and Web Responsive Design from Coursera. I am eager to apply this multifaceted skill set in the tech field, where I can innovate and make a meaningful impact.
+
 ---
 
 ## IT Support Specialist | Cybersecurity Enthusiast
